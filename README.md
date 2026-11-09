@@ -1,0 +1,1 @@
+# Xiaomi-12-lite-for-gpu-karnel
